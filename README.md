@@ -2,7 +2,7 @@
 - 👀 I’m interested in Codeing, graphic designing, content creation,freelancing,gaming and MUCH MORE!
 - 🌱 I’m currently learning Codeing
 - 💞️ I’m looking to collaborate on youtube mainly 
-- 😄 Pronouns: ⛬ He/his
+- 😄 Pronouns: ⛬ He/him
 - ⚡ Fun fact: I play minecraft lot i love minecraft and im pvper
 
 
